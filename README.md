@@ -1,0 +1,2 @@
+# gunaydin
+günaydın felakett
